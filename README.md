@@ -8,4 +8,4 @@ Hi Folks I am MeghaNandi!!
 💬 Ask me something interesting 
 📫 How to reach me: Anywhere you find me 😉 
 😄 Pronouns: She/her 
-⚡ Fun fact: I live on Study
+⚡ Fun fact: I am a PotterHead
